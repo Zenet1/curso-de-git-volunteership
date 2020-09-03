@@ -1,1 +1,1 @@
-El taller está a 10.99 los lunes
+este es un maravilloso taller!!!!

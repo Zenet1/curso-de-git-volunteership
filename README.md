@@ -1,1 +1,1 @@
-El taller está a 10.99 los lunes
+Este es un pésimo taller

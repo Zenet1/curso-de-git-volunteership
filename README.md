@@ -1,1 +1,1 @@
-Este es un maravilloso taller
+Este es un bonito taller

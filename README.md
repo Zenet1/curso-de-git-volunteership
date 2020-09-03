@@ -1,1 +1,1 @@
-Este es un pésimo taller
+Este es un maravilloso taller
